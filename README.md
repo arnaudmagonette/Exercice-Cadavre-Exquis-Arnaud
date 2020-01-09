@@ -8,5 +8,3 @@ Il était une fois un petit canard qui patauge dans la mare jusqu'au jour ou "co
 "Mais enfin  **Claudy**! Tu m'as oublié !? On s'est rencontré chez Jacky le héron, on à joué aux boules et manger des fruits fermentés. T'as failli te noyer dans la marre, faut le faire quand même !!
 
 Qu'il est con ce Claudy !
-
-test
